@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Esteban
 - 👀 I’m interested in food and all things related 🌮🍙🥑
-- 🌱 I’m currently learning to live 😵‍💫
+- 🌱 Go watch Inside by Bo Burnham
