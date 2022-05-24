@@ -1,6 +1,6 @@
-- 👋 Hi, I’m EstDan09
+- 👋 Hi, I’m Esteban
 - 👀 I’m interested in food and all things related
-- 🌱 I’m currently learning to live
+- 🌱 I’m currently learning to live, but who doesn´t?
 - 💞️ I’m looking to collaborate on anything that helps people
 - 📫 If you want to reach me, well, good luck with that...
 
