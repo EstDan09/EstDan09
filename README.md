@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Esteban
 - 👀 I’m interested in food and all things related 🌮🍙🥑
-- 🌱 Bilingual student: Orotina - Goldtub, Empanada de platano verde - In for nothing the silver no green, My Chemical Romance - Mi romance con Chema
+- 🌱 Bilingual student: Orotina - Goldtub
