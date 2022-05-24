@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @EstDan09
-- 👀 I’m interested in food
+- 👋 Hi, I’m EstDan09
+- 👀 I’m interested in food and all things related
 - 🌱 I’m currently learning to live
 - 💞️ I’m looking to collaborate on anything that helps people
 - 📫 If you want to reach me, well, good luck with that...
