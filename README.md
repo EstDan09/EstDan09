@@ -1,1 +1,3 @@
-The Wheel of Time turns, and Ages come and pass, leaving memories that become legend. Legend fades to myth, and even myth is long forgotten when the Age that gave it birth comes again. In one Age, called the Third Age by some, an Age yet to come, an Age long past, a wind rose in the Mountains  of  Mist.  The  wind  was  not  the  beginning.  There  are  neither beginnings nor endings to the turning of the Wheel of Time. But it was a beginning.
+“He came like the wind, like the wind touched everything, and like the wind was gone.
+
+-from The Dragon Reborn. By Loial, son of Arent son of Halan, the Fourth Age.”
