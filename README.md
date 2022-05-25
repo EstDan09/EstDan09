@@ -1,3 +1,3 @@
-“He came like the wind, like the wind touched everything, and like the wind was gone.
+“Mort was already aware that love made you feel hot and cold and cruel and weak, but he hadn’t realized that it could make you stupid.”
 
--from The Dragon Reborn. By Loial, son of Arent son of Halan, the Fourth Age.”
+- Terry Pratchett. Mort: A Novel of Discworld (p. 134). 
