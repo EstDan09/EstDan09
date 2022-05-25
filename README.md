@@ -1,3 +1,1 @@
-- 👋 Hi, I’m Esteban
-- 👀 I’m interested in food and all things related 🌮🍙🥑
-- 🌱 Bilingual student: Orotina - Goldtub
+The Wheel of Time turns, and Ages come and pass, leaving memoriesthat become legend. Legend fades to myth, and even myth is long forgottenwhen the Age that gave it birth comes again. In one Age, called the ThirdAge by some, an Age yet to come, an Age long past, a wind rose in theMountains  of  Mist.  The  wind  was  not  the  beginning.  There  are  neitherbeginnings nor endings to the turning of the Wheel of Time. But it was abeginning.
